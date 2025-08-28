@@ -1,4 +1,4 @@
-## Hi there 👋
+## 🐆🐣 and 🐇🐰
 
 <!--
 **know-nishimura-ana/know-nishimura-ana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
